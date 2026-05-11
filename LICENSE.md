@@ -1,4 +1,4 @@
-
+Bear for macOS exclusive Tool - goal tracking and export to PDF offers the most advanced Bear for macOS tool, with goal tracking and export to PDF. Ideal for professionals.
 
 
 
